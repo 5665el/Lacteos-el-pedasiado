@@ -21,7 +21,7 @@ En **Lácteos El Pedasiado**, nuestra misión es ofrecer productos lácteos fres
 
 ## Visítanos
 
-Estamos ubicados en **Choluteca, frente a Unimall,**. Ven y conoce más sobre nuestros productos o compra directamente en nuestra tienda en línea [enlace a tienda online].
+Estamos ubicados en **Choluteca, frente a Unimall,**. 
 
 ---
 
